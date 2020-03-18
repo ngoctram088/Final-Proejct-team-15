@@ -1,3 +1,3 @@
-# Final-Proejct-team-15
+# Final-Project-team-15
 Final project 
 Hi, I'm Thu
